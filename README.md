@@ -15,4 +15,6 @@ Janek became terrified, that is when, his friend looked in his window, and notic
 Janek started panicking more and more, until he felt something, he can become a human again by his will, he decided to keep it a secret, when he came to school that day, his friend started joking, and the rest started joking too. 
 After a few seconds, he became furious, he started shifting into the furry form, his *** started splitting and the furry skin started taking over, he started throwing his friends around until they all vomited, then, something happened, he fell to the floor, and his *protogen* mask stopped emitting any light, he started to come back to the human form, police arrived, but when they took eyes off Janek, he disappeared without a trace.
 
-Day 7: The search is still going on, no one had hope in finding him until, well, everyone forgot, some agents have arrived that day, and they wiped all the memory about the incident, so noone knows what happened, except the 
+Day 7: The search is still going on, no one had hope in finding him until, well, everyone forgot, some agents have arrived that day, and they wiped all the memory about the incident, so noone knows what happened, and they can bring back Janek, except the friend that saw all by himself, everything was stuck in his head, nobody believed him, he tried convincing all of them, but nothing happened, that is when, that exact friend, was captured and taken to the lab, he became a worker there and started working.
+
+Day 45: That friend is still keeping everything quiet, 
